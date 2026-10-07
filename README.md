@@ -1,4 +1,4 @@
-# Hi, I'm Divyanshu Raj
+# Hi, I'm Divyanshu Kumar Raj
 
 ### Computer Science & Engineering (AI) Student | Developer
 
